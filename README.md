@@ -1,4 +1,4 @@
 # Training-SecC
-name - Deepak Kumar Majhi
-phone No. - 7847827737
+Name - Deepak Kumar Majhi
+Phone No. - +91 7847827737
 Email Id - mdeepakkumar443@gmail.com
