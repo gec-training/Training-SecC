@@ -1,1 +1,1 @@
-# Training-SecC
+Name- Shiv Ashirbad Parida  Phonenumber- 9348212749  Emailid- shivashirbad2005@gmail.com  Regd No- 2301292106
