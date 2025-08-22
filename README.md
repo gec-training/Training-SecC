@@ -1,4 +1,1 @@
-NAME:Pallabi priyadarsni majhi
-PH.NO:9937578910
-EMAIL:pallabipriyadarsnimajhi@gmail.com
-
+Pallabi Priyadarsni Majhi,9937578910,pallabipriyadarsnimajhi@gmail.com
