@@ -1,1 +1,1 @@
-# Training-SecC
+Name-Soumya Ranjan Sahoo  Email-ssoumyaranjan583@gmail.com  Phone no-9348275946
