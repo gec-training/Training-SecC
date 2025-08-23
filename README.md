@@ -1,1 +1,1 @@
-Name-Abhinandan Mahanta, Mob Number-9040498327,Gmail-abhinandanmahanta295@gmail.com
+## Student Info Name: Rojalin Beura Phone: 8260844629 Email:bankanidhibeura@gmail.com
