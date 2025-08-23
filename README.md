@@ -1,1 +1,1 @@
-Name-Abhinandan Mahanta, Mob Number-9040498327,Gmail-abhinandanmahanta295@gmail.com
+Ruchi Smita Parida,7873475984,ruchismitaparida10@gmail.com
