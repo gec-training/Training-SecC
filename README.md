@@ -1,1 +1,1 @@
-## Student information Name:dibyasha sahoo  phone:6372077857 Email:dibyashasahoo682@gmail.com
+## student info name:dibyasha sahoo contact:6372077857 email:dibyashasahoo682@gmail.com
