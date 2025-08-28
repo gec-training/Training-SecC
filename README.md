@@ -1,1 +1,1 @@
-## studentinfo name:dibyasha sahoo contact:6372077857 email:dibyashasahoo682@gmail.com
+Name: Chandan Dalai, Phone number: 8260870820, Email: dalaichandan196@gmail.com, Reg no. : 2301292196
