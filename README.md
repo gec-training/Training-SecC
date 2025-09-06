@@ -1,1 +1,3 @@
-## studentinfo name:dibyasha sahoo contact:6372077857 email:dibyashasahoo682@gmail.com
+## Student Info Name: Rojalin Beura Phone: 8260844629 Email:bankanidhibeura@gmail.com
+Name-Rojalin Beura, Mob Number-8260844629,Gmail-bankanidhibeura@gmail.com
+
