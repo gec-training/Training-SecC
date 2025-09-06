@@ -1,1 +1,1 @@
-Swarup, 9513117771, support@mysideincome.in
+Deepak kumar majhi, 7847827737, mdeepakkumar443@gmail.com
