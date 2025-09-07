@@ -1,2 +1,1 @@
-Swarup, 9513117771, support@mysideincome.in
-Smruti Ranjan Sahoo,8270010891,risingsmruti@gmail.com
+Deepak kumar majhi, 7847827737, mdeepakkumar443@gmail.com
